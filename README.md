@@ -1,6 +1,6 @@
-## helloo. ୨୧ . ⊹ 𓐮 . kaboodle fann!![6c35552a2cb747e659c04b6b2b6910f5](https://github.com/user-attachments/assets/69ad978b-94c8-4a60-a5d1-e2b40b0f2c0f)
-bunnies bunneys bunneys X33
-꒰՞ °ᗝ°՞꒱.ᐟ.ᐟ꒰՞ °ᗝ°՞꒱.ᐟ.ᐟ꒰՞ °ᗝ°՞꒱.ᐟ.ᐟ
+# ![112ad778d7e741bbc19a819556cca561](https://github.com/user-attachments/assets/1b5e19a2-38cf-4531-8c92-1cd3234238dd)
+1# kaboodle fan  . 
+
 <!--
 **ANGELBUNNIES/ANGELBUNNIES** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
